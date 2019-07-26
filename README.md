@@ -1,0 +1,1 @@
+# birfikrimvar_mobile
